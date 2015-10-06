@@ -1,2 +1,3 @@
 # 1st-reposit
-idk
+idk what im doing
+yay for learning!
